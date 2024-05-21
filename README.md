@@ -4,4 +4,5 @@
 - 🎨 My passions include art, photography, music, and films.
 - 🤝 I am eager to collaborate on exciting and innovative projects.
 - 📧 Feel free to reach out to me at [hello@joanna-chow.com](mailto:hello@joanna-chow.com).
+- 🌐 Check out my portfolio: [joanna-chow.com](https://www.joanna-chow.com/)
 
